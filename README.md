@@ -1,2 +1,2 @@
-# H1 BookNotes
+# BookNotes
 Books I read and their notes
