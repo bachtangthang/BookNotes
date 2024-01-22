@@ -16,11 +16,11 @@
 
 2. Kiếm soát sự việc xung quanh</br>
   Quy tắc về lối sống và sự phân loại</br>
-  Tất cả sự việc diễn ra xung quanh ta được phân ra làm 3 loại:</br>
+  + Tất cả sự việc diễn ra xung quanh ta được phân ra làm 3 loại:</br>
     - Những thứ ta kiểm soát.</br>
     - Những thứ ta không kiểm soát.</br>
     - Những tứ ta kiểm soát một phần.</br>
-  Khắc kỷ khuyên ta chỉ nên tập trung vào những việc ta kiểm soát được và những việc ta kiểm soát được một phần.
+  + Khắc kỷ khuyên ta chỉ nên tập trung vào những việc ta kiểm soát được và những việc ta kiểm soát được một phần.
   Còn những việc nằm ngoài tầm kiểm soát (thời tiết, kẹt xe, hành động của người khác, ...) ta không nên dành phần quan tâm.</br>
   **Nỗ lực nội tại lớn hơn kết quả ngoại tại**
 
