@@ -50,4 +50,6 @@
 Hãy nhớ: **Dễ với người, khó với mình.** Rộng lượng và bao dung với những người xung quanh, nhưng phải cứng rắn và yêu cầu cao hơn với chính bản thân mình. Tuân theo quy tắc một thời gian, và bạn sẽ thấy hầu như cơn giận nhỏ nhặt sẽ biến mất, cùng với đó là sự phát triển không ngừng nghỉ của bản thân.
 
 
+## Suy ngẫm và liên hệ bản thân
+
 
