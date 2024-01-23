@@ -36,3 +36,9 @@
   Thực hành đánh giá bản thân trong việc thực hiện chủ nghĩa khắc kỷ</br>
   Tốt nhất là viết nhật ký, ghi lại những hành động, suy nghĩ mà bản thân có thể làm tốt hơn trong ngày.</br>
   Hãy nhớ những con người vĩ đại nhất cũng viết nhật ký, kể cả hoàng đế La Mã Marcus Aurelius.</br>
+
+## Lời khuyên
++ Mọi người xung quanh không cần biết bạn đang thực hành chủ nghĩa khắc kỷ, vì khả năng lớn bạn sẽ đối đầu với những lời nhạo bán, chê bai. Hãy chuẩn bị tinh thần cho những lời chế nhạo.
++ Không nên kìm nén cảm xúc, vì một ngày nào đó những cảm xúc ấy sẽ trở lại và mang đến những “phần lãi", chính bản thân bạn cũng sẽ không biết cảm xúc ấy sẽ ảnh hưởng đến những hành động của bạn như thế nào, nên việc đề phòng nó rất là khó. Thay vào đó nên phân tích và hiểu rõ những cảm xúc bản thân đang trải qua và thực hành các bài tập khắc kỷ.
++ Đừng quá quan tâm đến danh vọng hay tiền bạc, chúng ta cần chúng để sống nhưng cuộc đời, trải nghiệm, cảm xúc, giá trị của chúng ta không xoay xung quanh chúng. Đừng để một ngày bản thân không được một ai đó tôn trọng mà ảnh hưởng đến tâm trạng của chúng ta. Đừng để những món hàng hiệu đắt tiền làm lu mờ đi giá trị của sự bình thản trong tâm hồn.
++ Chúng ta không mất cái gì cả, chúng ta chỉ trả nó về đúng nơi nó thuộc về. Áp dụng cho người yêu, gia đình, bạn bè, sức khỏe, sự nghiệp, .. và tất cả các mặt khác trong cuộc sống
